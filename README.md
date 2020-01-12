@@ -1,2 +1,0 @@
-# NoroffModuleAssignment
-# NoroffModuleAssignment
